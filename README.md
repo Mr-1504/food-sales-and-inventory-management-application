@@ -1,5 +1,4 @@
 # BTL_LapTrinhTrucQuan
-BeA Food ăn không ngon thì cút :))</br>
  Táo bán đồ ăn:))</br>
 </br></br>
 
